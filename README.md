@@ -1,4 +1,4 @@
-# Preparation of PhD Application
+# Preparation for PhD Application
 
 ## Academic CV
 
